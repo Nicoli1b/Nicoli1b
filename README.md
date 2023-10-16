@@ -14,4 +14,12 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
-  
+- Eu sou alta
+- Sou estudiosa, minhas notas estão boas
+- Eu sou carinhosa com todo mundo
+- Eu namoro, estudo e faço academia
+- Eu sei cozinhar, é meu hoppy preferido
+- Eu adoro dormir, e ficar com o meu namorado
+- Eu adoro fazer minha unha
+- Eu sempre cuido delas
+- Eu treino pra caralho 
