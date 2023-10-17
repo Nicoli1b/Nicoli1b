@@ -4,22 +4,8 @@
 
 **Nicoli1b/Nicoli1b** is a ✨ _special_ ✨  repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
-- Eu sou alta
-- Sou estudiosa, minhas notas estão boas
-- Eu sou carinhosa com todo mundo
-- Eu namoro, estudo e faço academia
-- Eu sei cozinhar, é meu hoppy preferido
-- Eu adoro dormir, e ficar com o meu namorado
-- Eu adoro fazer minha unha
-- Eu sempre cuido delas
-- Eu treino pra caralho 
+- Meu nome é Nicoli, tenho 15 anos e faço aniversario dia 10 de janeiro de 2008. Eu sou alta e estudiosa,
+minhas notas estão boas e nenhuma vermelha, eu sou carinhosa com todo mundo. Eu namoro, estudo e faço academia,
+meu hoppy preferido é cozinhar, adoro dormir, e ficar com o meu namorado, amo fazer minha unha e sempre cuido delas. 
+
